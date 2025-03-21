@@ -4,4 +4,4 @@ I am currently a student at Duke's Nicholas School of the Environment studying F
 
 Check out my LinkedIn to learn more about my ongoing projects! [LinkedIn](https://www.linkedin.com/in/victoria-thompson-83b198228/)
 
-
+![Image](https://github.com/victoriathomp/victoriathomp/blob/main/Screen%20Shot%202025-03-21%20at%203.56.15%20PM.png)
